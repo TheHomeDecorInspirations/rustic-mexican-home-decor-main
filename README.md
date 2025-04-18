@@ -1,1 +1,1 @@
-# rustic-mexican-home-decor-main
+# rustic-mexican-home-decor
